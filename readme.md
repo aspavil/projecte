@@ -14,5 +14,8 @@ la rosalia que la lia
 
 no me igas mas
 
+
 el gerard cada dia esta mes PRIMMM!!!!
 
+
+gerad love rosalia tra tra mala gente
