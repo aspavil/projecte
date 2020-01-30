@@ -19,3 +19,5 @@ el gerard cada dia esta mes PRIMMM!!!!
 
 
 gerad love rosalia tra tra mala gente
+
+rosalia love gerard
