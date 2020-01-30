@@ -12,5 +12,7 @@ tra tra mala gente
 
 la rosalia que la lia
 
-fueraaaa
+no me igas mas
+
+el gerard cada dia esta mes PRIMMM!!!!
 
